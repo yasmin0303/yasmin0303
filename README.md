@@ -4,7 +4,7 @@
 🎓 Recently graduated with a B.Sc. in Computer Science (2025)  
 📫 Reach me at:  
    ✨ Instagram: [@yasmin__jk](https://instagram.com/yasmin__jk)  
-   ✨ LinkedIn: www.linkedin.com/in/yasmin-banu-45375b292
+   ✨ LinkedIn: www.linkedin.com/in/yasmin-banu-45375b292   
 😄 Pronouns: she/her  
 
 ---
